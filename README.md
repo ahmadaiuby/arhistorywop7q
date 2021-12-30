@@ -1,1 +1,0 @@
-# arhistorywop7q
